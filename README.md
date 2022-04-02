@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @myAvatara
+-Right now I am learning web development and exploring different fields  and interested in exploring different fields of IT sector yet I am a student and doing BCA but decided I have even started doing freelancing and internships
+-I am trying to learn new skills and acquire more knowledge so that I can grow with fun
